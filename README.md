@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RUDJ040320HTSZLNA8
+RUDJ040320HTSZLNA8
